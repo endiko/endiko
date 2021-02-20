@@ -1,0 +1,3 @@
+Nadezhda Kogay
+
+Personal info
